@@ -1,4 +1,4 @@
-My name is Jujutsu Kaisen Zero and I love to Kaisen over all my Jujutsu socerers!
+My name is Valentino Zero and I love to Kaisen over all my Jujutsu socerers!
 
 I am the king of Kaisen Land
 
